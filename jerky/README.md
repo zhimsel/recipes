@@ -1,8 +1,8 @@
 # Jerky
 
-## Beef
+## Types of cuts
 
-### Types of cuts
+### Beef
 
 You want as lean of a cut as possible (very little fat). When dried, the fat tends to get very sticky and keeps a little too much moisture in.
 
